@@ -286,8 +286,6 @@ https://github.com/Sahasraperam
 Email:
 sahasra.peram.77@gmail.com
 
-To check the website:
-https://quick-notes-ckeh.onrender.com
 
 ---
 
